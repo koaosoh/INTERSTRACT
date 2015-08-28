@@ -1,0 +1,2 @@
+# INTERSTRACT
+Assessing the Situation
